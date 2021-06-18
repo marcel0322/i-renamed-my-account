@@ -1,2 +1,2 @@
-# i-renamed-my-account
+# I renamed my account
 I RENAMED MY GITHUB ACCOUNT: https://github.com/marcelbieniek
